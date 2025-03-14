@@ -1,4 +1,4 @@
-<h1 align="center">Free LLC for Veterans: My Journey to Financial Freedom</h1>
+<h1 align="center">Free LLC for Veterans: My personal experience</h1>
 
 ---
 
